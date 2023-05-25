@@ -1,2 +1,2 @@
-20233118 한시우
-
+20233118 siwoo han
+Kookmin Univ.
